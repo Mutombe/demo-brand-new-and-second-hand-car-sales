@@ -1,1 +1,0 @@
-# demo-brand-new-and-second-hand-car-sales
